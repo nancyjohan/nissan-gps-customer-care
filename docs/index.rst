@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://tek.chat/">
+
 How to Contact Nissan GPS Customer Care? ☎️🧭
 ============================================
 .
